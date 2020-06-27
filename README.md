@@ -1,1 +1,1 @@
-# Omar-The-Great
+I am editing the README file. Adding some more details about the project description.# Omar-The-Great
